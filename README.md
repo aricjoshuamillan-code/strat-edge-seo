@@ -1,0 +1,1 @@
+# strat-edge-seo
